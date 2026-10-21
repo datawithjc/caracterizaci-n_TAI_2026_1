@@ -1,0 +1,1 @@
+# caracterizaci-n_TAI_2026_1
